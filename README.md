@@ -1,2 +1,2 @@
 # Immune-Lifter-ayurveda-Blessed-Natural-
-Blessed Naturals Fixit Pain Roll is an Ayurvedic roll-on that delivers fast, targeted relief from joint pain, muscle stiffness, and cramps. Packed with 20+ natural herbs including turmeric, it reduces inflammation and soothes discomfort. Its lightweight, non-greasy formula absorbs quickly for instant comfort and daily use.
+Blessed Naturals Immuno Lifter is an Ayurvedic capsule blend with Ashwagandha, Amla, Giloy, Tulsi, and Shilajit, designed to strengthen immunity, boost energy, reduce mental fatigue, and promote focus. It supports overall vitality and daily wellness naturally with 30+ potent herbs and zero chemicals.
